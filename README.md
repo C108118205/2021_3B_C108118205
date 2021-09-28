@@ -10,11 +10,11 @@ Systems Analysis and Design homework
 ##### C108118205 
 ###### C108118205 
 
-###### sorry my wallet but
+# sorry my wallet but
 
 ![Q_Q](cryingcat.jpg)
 
-###### yee
+# yee
 
 ![yee](https://upload.wikimedia.org/wikipedia/zh/1/19/Yee_Oro.PNG)
 
