@@ -12,6 +12,9 @@ Systems Analysis and Design homework
 
 # sorry my wallet but
 
+<a href="https://www.youtube.com/watch?v=uk2YHYKNYu8/">this is the meme you want to see</a>
+
+
 ![Q_Q](cryingcat.jpg)
 
 # yee
